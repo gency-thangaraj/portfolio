@@ -56,7 +56,7 @@ More modules coming soon:
 I’m an aspiring **Instructional Designer** with a passion for creating meaningful eLearning experiences.
 Let’s connect and collaborate!
 
-🔗 [LinkedIn](https://www.linkedin.com/in/gencythangaraj) | 💻 [Email](mailto:gencythangaraj@gmail.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/gencyt) | 💻 [Email](mailto:gencythangaraj7@gmail.com)
 
 ---
 
