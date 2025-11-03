@@ -60,5 +60,4 @@ Let’s connect and collaborate!
 
 ---
 
-⭐ *If you like my work, don’t forget to star this repo!* 🌟
 Thank you for visiting my portfolio 🙌
